@@ -1,1 +1,0 @@
-# salim-deraiya.github.io
